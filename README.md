@@ -15,4 +15,4 @@ Tools & Skills:
 📫 jferdous4.2017@yahoo.com
 🔗 [LinkedIn](https://linkedin.com/in/jannatul-ferdous-83502845)
 
-⚡ Fun fact: I moved from Bangladesh to China twice — once for my MSc and again for my PhD — funded entirely by the Chinese Government Silk Road Scholarship. Robots brought me here, (or should i say scholarship money haha) and I'm staying for the research. 🤖
+⚡ Fun fact: I moved from Bangladesh to China twice .... once for my MSc and again for my PhD ....funded entirely by the Chinese Government Silk Road Scholarship. Robots brought me here, (or should i say scholarship money haha) and I'm staying for the research. 🤖
