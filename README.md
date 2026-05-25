@@ -10,7 +10,7 @@ Currently working on:
 - writing a manuscript on micro miniature robots
 
 Tools & Skills:
-- Python · PyTorch · OpenCV · HuggingFace · MATLAB .....Curious & Quick learner
+- Python · PyTorch · OpenCV · HuggingFace · MATLAB ·Curious & Quick learner
 
 📫 jferdous4.2017@yahoo.com
 🔗 [LinkedIn](https://linkedin.com/in/jannatul-ferdous-83502845)
